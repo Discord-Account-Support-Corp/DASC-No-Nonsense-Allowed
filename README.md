@@ -1,6 +1,6 @@
 
 > [!TIP]
-> **✅ | This Page Documents An Official DASC© Policy:** <mark>No Nonsense Allowed
+> **✅ | This Page Documents An Official DASC© Policy:** <mark>[No Nonsense Allowed](https://github.com/Discord-Account-Support-Corp/DASC-No-Nonsense-Allowed/blob/main/README.md#:~:text=Official%20DASC%C2%A9%20Policy:-,No%20Nonsense%20Allowed)
 # About Nonsense
 [Nonsense](https://www.gettyimages.ie/search/2/imagephrase=stupid+kid) Is Rather Nonsensical & Is Meaningless!
 # Rather Be Wise Than Nonsensical
