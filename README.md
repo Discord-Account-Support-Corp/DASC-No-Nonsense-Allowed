@@ -1,4 +1,4 @@
-& # DASC©: No Nonsense Allowed
+
 > [!TIP]
 > **✅ | This Page Documents An Official DASC© Policy:** <mark>No Nonsense Allowed
 # About Nonsense
